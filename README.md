@@ -1,9 +1,8 @@
-- 👋 I’m @EvryMorninIWakeUpNotABillionaire
-- 👀 I’m interested in sleeping
-- 📫 How to reach me - you don't
-- ⚡ Fun fact: it's is my life - Jon Bovi
+OLa eu shamo-me migel e gosto de niggers e criancas de 8 anos. o meu idulo e o jef epstin e o meu canotr fav e o Adolfo Hitler. Eu tabalho na microsfot e gosto muito de tralbahar na microsfot
 
-<!---
-EvryMorninIWakeUpNotABillionaire/EvryMorninIWakeUpNotABillionaire is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+# NIGGERS NIGGERS NIGGERS NIGGERS
+
+eu tenho experienca em jogar pron night
+
+# EU :D
+![eu](https://pbs.twimg.com/profile_images/1722287439857778694/X6cl2SxT_400x400.jpg)
